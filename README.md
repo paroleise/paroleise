@@ -1,0 +1,1 @@
+Graphic Design, Typography, Web Engineering, Illustration and Music.
